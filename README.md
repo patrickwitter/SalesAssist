@@ -11,5 +11,8 @@ https://github.com/patrickwitter/SalesAssist/assets/53438425/a4f08b06-31d9-4b7b-
 - Other features
   
 
-https://github.com/patrickwitter/SalesAssist/assets/53438425/34c4fbd1-49cd-4e74-b2b7-0d6bca92e266
+
+
+
+https://github.com/patrickwitter/SalesAssist/assets/53438425/78230eb6-8b5d-44fd-9749-c2494de68afe
 
